@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @salemsasa7
 - 👀 I’m interested in dancing
 - 🌱 I’m currently learning math english
-- 💞️ I’m looking to collaborate on i do not know
+- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me i do not know
 
 <!---
